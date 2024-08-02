@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Chicago-Gaming
 - 👀 I’m interested in Hoi4 modding
-- 🌱 I’m currently learning how tomod in hoi4 and other grand stratgy games
+- 🌱 I’m currently learning how to mod in hoi4 and other grand stratgy games
 - 💞️ I’m looking to collaborate on any hoi4 mods
 - 📫 How to reach me 
 - 😄 Pronouns: ...
